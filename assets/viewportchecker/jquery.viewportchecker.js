@@ -1,0 +1,1 @@
+No Content: https://glucotrustglucotrust.com/assets/viewportchecker/jquery.viewportchecker.js
